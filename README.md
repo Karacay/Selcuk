@@ -1,4 +1,0 @@
-Selcuk
-======
-
-Genel Bilgiler
